@@ -14,7 +14,7 @@ GIS analyst with a master’s in Applied Geography, a GIS diploma and project ma
 - Microsoft applications
 
 ## Education
-- Project Management, Fleming College
+- Project Management, Fleming College | 2025  
 - GIS Application Specialist, Fleming College | 2024
 - Applied Geography, University of Madras | 2021
 - Bachelor of Geography, Tourism and Travel Management, Madras Christian College | 2019
